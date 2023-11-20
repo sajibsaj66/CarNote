@@ -79,4 +79,4 @@ To do:
 
 
 ## Contact
-Created by [Umar Hasan](https://www.linkedin.com/in/umrhsn/) - feel free to contact me!
+Created by [Umar Hasan](https://www.linkedin.com/in/shamsul-alam-sajib-662460201/) - feel free to contact me!
